@@ -1,0 +1,1 @@
+# bigdata_satriaajiwijaya_menganalisis_kesejahteraan_indonesia
